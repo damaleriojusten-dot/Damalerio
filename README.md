@@ -26,6 +26,8 @@ My goal is to continuously grow in system development, multimedia design, and us
 > UI/UX Design and User Experience
 > Leadership, Collaboration, and Community Involvement
 
-Contact Me
+Contact me
+
 Email: damaleriojusten@gmail.com
+
 Location: Evacon Tubod, Carmen, Davao del Norte
